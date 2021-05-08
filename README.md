@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nessma Galal
+- 👀 I’m interested in data science and languages
+- 🌱 I’m currently learning data analysis and italian
+- 💞️ I’m looking to collaborate on marketing projects
+- 📫 How to reach me? send me an email nessmagalal5555@gmail.com.
